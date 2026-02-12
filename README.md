@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @sri-602
 - 👀 I’m interested in IT FIELD 
-- 🌱 I’m currently Pursuing in Engineering college(B.TECH-IT)
 - 📫 How to reach me ...
 - Mobile no : 8778870745
 - Email id : srikanth.p.it@gmail.com
